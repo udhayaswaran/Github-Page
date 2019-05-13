@@ -1,11 +1,11 @@
 ## Summer Book Reviews by Swaran Ponshunmugam
 
-#### Schedule
+### SCHEDULE
 
 Book | Review
 --------- | -------------
-Shoe Dog | May 13, 2019
-Autonomous Databases for Dummies | May 14, 2019
+Shoe Dog, *Phil Knight* | May 13, 2019
+Autonomous Databases for Dummies, *Lawrence Miller* | May 14, 2019
 
 
 
