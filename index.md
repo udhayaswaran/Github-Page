@@ -30,7 +30,7 @@ else — is genius. Giving up doesn’t mean stopping. Don’t ever stop.***
 
 The book is inspirational, tremendously well-written and is void of any pretension you may expect from a Billionaire founder of a Fortune 500 Company. I wish Knight spent more time on the numbers though, to paint a more detailed picture on how Blue Ribbon Sports and Nike were doing financially across the years. I also wish he has talked about what goes into manufacturing and what exactly in the '80s and '90s defined its success today. 
 
-** The main point I take away from Shoe Dog is that conviction and attitude are unstoppable forces of nature that are necessary for success in business. **
+**The main point I take away from Shoe Dog is that conviction and attitude are unstoppable forces of nature that are necessary for success in business.**
 
 > ***Beating the competition is relatively easy. Beating yourself is a never-ending commitment.***
 
